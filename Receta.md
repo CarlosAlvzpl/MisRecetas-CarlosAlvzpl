@@ -20,3 +20,6 @@
 
 
 3. Mezclar los macarrones con la salsa: Una vez que los macarrones estén cocidos, escúrrelos, reservando un poco del agua de cocción. Añade los macarrones a la sartén con la salsa de tomate y mezcla bien. Si la salsa está muy espesa, puedes añadir un poco del agua reservada.
+
+
+4. Añadir ingredientes opcionales: Si deseas, puedes incorporar ingredientes adicionales como chorizo, carne picada o queso rallado para darle un toque especial a tu plato.
