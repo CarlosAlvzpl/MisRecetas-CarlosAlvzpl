@@ -23,3 +23,6 @@
 
 
 4. Añadir ingredientes opcionales: Si deseas, puedes incorporar ingredientes adicionales como chorizo, carne picada o queso rallado para darle un toque especial a tu plato.
+
+
+5. Servir y disfrutar: Sirve los macarrones calientes, decorando con un poco de queso rallado o albahaca fresca si lo prefieres. ¡Listo para disfrutar de un delicioso plato de macarrones con tomate!.
