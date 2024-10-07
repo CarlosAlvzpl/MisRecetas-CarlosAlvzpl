@@ -17,3 +17,6 @@
 
 
 2. Preparar la salsa de tomate: En una sartén, calienta un poco de aceite de oliva y añade cebolla picada y ajo al gusto. Sofríe hasta que estén dorados. Luego, agrega tomate triturado y condimenta con sal, pimienta y orégano. Cocina a fuego lento durante unos 20 minutos para que los sabores se integren.
+
+
+3. Mezclar los macarrones con la salsa: Una vez que los macarrones estén cocidos, escúrrelos, reservando un poco del agua de cocción. Añade los macarrones a la sartén con la salsa de tomate y mezcla bien. Si la salsa está muy espesa, puedes añadir un poco del agua reservada.
